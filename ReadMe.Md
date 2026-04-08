@@ -1,1 +1,1 @@
-Keep Going
+Work Hard

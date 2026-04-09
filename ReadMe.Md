@@ -1,1 +1,1 @@
-Work Hard
+Success is Yours
